@@ -1,0 +1,3 @@
+- 👋 Hi, I'm Murder
+- 👀 I Know Basic Python
+- 🌱 And I’m currently learning Python Sockets.
