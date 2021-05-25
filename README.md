@@ -1,3 +1,5 @@
 - 👋 Hi, I'm Murder
-- 👀 I Know Basic Python
-- 🌱 And I’m currently learning Python Sockets.
+- 👀 I'm black
+- stop looking here for useless insults to then put
+forward onto my existence, nobody cares for your 
+bullshit acknowledgement's lol.
